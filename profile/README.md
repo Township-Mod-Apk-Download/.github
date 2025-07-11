@@ -60,8 +60,7 @@ Yes, it syncs with your current account safely.
 
 ## 📌 New: Community & Support  
 
-💬 **Join our Discord** for updates and troubleshooting:  
-[![Discord](https://img.shields.io/badge/Discord-Join_Community-7289DA?style=flat&logo=discord)](#)  
+💬 **Join our Discord** for updates and troubleshooting:   
 
 ---  
 
@@ -74,7 +73,7 @@ Yes, it syncs with your current account safely.
 
 ## 🔍 Trending Keywords  
 
-  
+Township Mod Apk Download, Township Mod Apk, Township Mod Download, Township Apk Download, Township Mod, Township Apk, township mod apk unlimited money, Township Download, township unlimited money and cash, township mod apk unlimited cash, Township Apk Mod, apk township mod
 
 ---  
 
